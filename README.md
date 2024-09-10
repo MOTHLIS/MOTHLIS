@@ -10,6 +10,7 @@
 <p>You can find me somewhere else & know more about me here : https://moriyaki.carrd.co</p>
 
 # Thank you for visiting!
-Have a wonderful day！
+<p>Have a wonderful day！</p>
+<p>Leave some anonymous messages / drawings here : https://sharkwithcoffee.straw.page/</p>
 
 ![hellyeah]([http://url/to/img.png](https://img-l.ink/img/1cS0IYTP4dtzRR97Zgj6WDE3x6_SNuwkL.gif))
