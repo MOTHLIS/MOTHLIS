@@ -1,6 +1,6 @@
 # Hey there!
 <p>Nice to meet you! I play PonyTown sometimes, so if you see me walking around, don't be scared to say hi! I don't bite at all</p>
-<p>I don't have a DNI list at all! I'm completely fine with anyone of any age, race, etc. Just don't be weird around me & others and I'll treat you fairly</p>
+<p>I don't have a DNI list at all! I'm completely fine with anyone of any age, gender, etc. Just don't be weird around me & others and I'll treat you fairly</p>
 
 # About me :
 <p>I'm usually chatty and use capslock often!!</p>
