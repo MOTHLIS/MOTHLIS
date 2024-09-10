@@ -3,10 +3,10 @@
 <p>I don't have a DNI list at all! I'm completely fine with anyone of any age, gender, etc. Just don't be weird around me & others and I'll treat you fairly</p>
 
 # About me :
-<p>I'm usually chatty and use capslock often!!</p>
+<code style="color : name_color">Whispering to me is the best way to catch my attention, </code><p> though I may be slow with replying if I'm AFK</p>
 <p>I'm not into roleplaying (anymore) and will most likely decline if someone asked to RP</p>
 <p>I can speak both English & Indonesian
-<p>I LOVE OMORI
+<p>♡ live love laugh OMORI
 <p>You can find me somewhere else & know more about me here : https://moriyaki.carrd.co</p>
 
 # Thank you for visiting!
