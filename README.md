@@ -9,3 +9,5 @@
 
 # Thank you for visiting!
 Have a wonderful day！
+
+![alt text]([http://url/to/img.png](https://img-l.ink/img/1cS0IYTP4dtzRR97Zgj6WDE3x6_SNuwkL.gif))
