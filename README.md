@@ -3,7 +3,7 @@
 <p>I don't have a DNI list at all! I'm completely fine with anyone of any age, gender, etc. Just don't be weird around me & others and I'll treat you fairly</p>
 
 # About me :
-<code style="color : name_color">Whispering to me is the best way to catch my attention, </code><p> though I may be slow with replying if I'm AFK</p>
+<code style="color : name_color">Whispering to me is the best way to catch my attention, though I may be slow with replying if I'm AFK</code>
 <p>I'm not into roleplaying (anymore) and will most likely decline if someone asked to RP</p>
 <p>I can speak both English & Indonesian
 <p>♡ live love laugh OMORI
