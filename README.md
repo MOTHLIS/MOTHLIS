@@ -12,4 +12,4 @@
 <p>Have a wonderful day！</p>
 <p>Leave some anonymous messages / drawings here : https://sharkwithcoffee.straw.page/</p>
 
-![hellyeah](http://url/to/img.png](https://img-l.ink/img/1cS0IYTP4dtzRR97Zgj6WDE3x6_SNuwkL.gif)](https://img-l.ink/img/1CpA9mg_G0KDixUmEUsowAsZaIp9Ysuhq.gif)
+[hellyeah]([http://url/to/img.png](https://img-l.ink/img/1cS0IYTP4dtzRR97Zgj6WDE3x6_SNuwkL.gif)](https://img-l.ink/img/1CpA9mg_G0KDixUmEUsowAsZaIp9Ysuhq.gif))
