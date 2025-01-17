@@ -6,7 +6,7 @@
 <code style="color : name_color">Whispering to me is the best way to catch my attention, though I may be slow with replying if I'm AFK</code>
 <p>I'm not into roleplaying (anymore) and will most likely decline if someone asked to RP</p>
 <p>I can speak both English & Indonesian
-<p>♡ live love laugh OMORI
+<p>♡ live laugh love OMORI, Ranfren, TBHK and HSR
 
 # Thank you for visiting!
 <p>Have a wonderful day！</p>
